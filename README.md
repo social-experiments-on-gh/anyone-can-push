@@ -11,5 +11,6 @@ Ok fine, not LITERALLY anything (I don't wanna get banned), so:
 - No Pirated Stuff
 - No Deleting the Guestbook or other's guestbook entries
 - No deleting other people's code
+- No modifying the license
 - No Insults
 But everything else is allowed.
