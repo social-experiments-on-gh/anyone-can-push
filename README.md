@@ -15,4 +15,4 @@ Ok fine, not LITERALLY anything (I don't wanna get banned), so:
 - No Insults
 But everything else is allowed.
 
-* Illegal Content = Content illegal under U.S. Jurisdiction
+*Illegal Content = Content illegal under U.S. Jurisdiction
